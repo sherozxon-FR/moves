@@ -1,1 +1,2 @@
 loyhani yashilash 
+loyha yaxshilandi 
